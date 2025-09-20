@@ -60,8 +60,9 @@
 
 **立即加入Nexus，开启您的精彩人生！**   
 👉 **官方 Telegram 群组:** [点击加入](https://t.me/+NZ_sNo17IUtlYmI1) 👈
+> 进群免费领取测试 , 为了保证得到最新和高质量服务推荐加入我们的群组
 
 > [Telegram 使用指南](https://github.com/chinavpns/telegram)
-> 不知道 vpn 如何购买的推荐：https://okyun01.com
+[vpn 购买的推荐](https://okyun01.com)
 
-> 进群免费领取测试
+
